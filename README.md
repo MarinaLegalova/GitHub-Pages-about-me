@@ -6,4 +6,4 @@
 
 У меня есть сестра близнец. Правда похожи?
 
-![](x_ca0199dc.jpg)
+![](c:\Users\Марина\Pictures\Sample Pictures\x_ca0199dc.jpg)
